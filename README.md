@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @0dotquixote
+- 🌱 I’m building and collaborating on generative art, with a focus on climate and other social issues
